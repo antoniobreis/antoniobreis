@@ -1,4 +1,4 @@
-# Olá! 👋 Eu sou o Antonio Eduardo
+# Olá! 👋 Eu sou o Antonio Breis
 
 Atualmente estou em transição de carreira para a área de **Tecnologia da Informação**, focado em **desenvolvimento web**. Estou cursando a pós-graduação **DevStart** pela Rocketseat, com previsão de conclusão no primeiro semestre de 2026.
 
