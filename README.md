@@ -42,4 +42,4 @@ Fique à vontade para entrar em contato:
 - [LinkedIn](https://www.linkedin.com/in/antoniobreis/)
 - Email: antonio.epb@gmail.com
 
-Obrigado por passar por aqui! 😄
+Obrigado por passar por aqui!
